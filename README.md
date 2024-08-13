@@ -5,7 +5,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on anime ilustration;
-- 🌱 I’m currently learning who to draw;
+- 🌱 I’m currently learning draw;
 - 👯 I’m looking to collaborate on art industry;
 - 🤔 I’m looking for help with nothing;
 - 💬 Ask me about art;
